@@ -2,6 +2,10 @@
 
 Hey I'm Agrata
 
+I'm a product designer and maker living in Raipur, India. Currently, I'm designing commerce tools at Atlassian. Let's get to know each other. 
+
+[@b0urnvita on Twitter](https://twitter.com/b0urnvita) </br>
+VSCO for my photographs(https://vsco.co/agratapatel) </br>
 
 
 <!--
