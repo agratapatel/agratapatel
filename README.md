@@ -2,7 +2,7 @@
 
 Hey I'm Agrata
 
-# Hi there 👋
+
 
 <!--
 **agratapatel/agratapatel** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
