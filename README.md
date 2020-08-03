@@ -2,7 +2,7 @@
 
 Hey I'm Agrata
 
-I'm a product designer and maker living in Raipur, India. Currently, I'm designing commerce tools at Atlassian. Previously I internet at Samsung Design and did HCI undergrad from IIT Guwahati. Let's get to know each other. 
+I'm a product designer and maker living in Raipur, India. Currently, I'm designing commerce tools at Atlassian. Previously I interned at Samsung Design and did HCI undergrad from IIT Guwahati. Let's get to know each other. 
 
 
 [@b0urnvita on Twitter &rarr;](https://twitter.com/b0urnvita) </br>
